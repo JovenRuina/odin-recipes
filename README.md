@@ -1,0 +1,1 @@
+This is a one-recipe webpage, entirely dedicated to the only recipe I know, Chicken with peppers and broccoli 
